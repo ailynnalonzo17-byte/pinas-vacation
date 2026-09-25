@@ -61,6 +61,25 @@ Travelers (all on the same booking): Ailynn, Christopher, Rhianabigail (Gail)
 | **Check-out** | Thursday, January 7, 2027 (until 12:00 PM) |
 | **Nights** | 4 |
 
+### Getting from Caticlan airport to Henann (Jan 3)
+
+Henann is on Boracay island. After landing at Caticlan (MPH) you still need a short land transfer and a boat ride.
+
+**Option A: Henann transfer (recommended for a big group; book it ahead)**
+1. **8:30 AM:** land at Caticlan. Look for the **Henann lounge/desk at the airport**.
+2. A Henann van takes you about 5 minutes to the **Henann Welcome Center**, which is only for Henann guests.
+3. A **Henann private speedboat** takes you to Boracay, about 10 minutes.
+4. Land transfer to Henann Regency (Station 2). Total is about 45–60 minutes.
+- There's a fee unless your package includes it. Online reviews mention about ₱1,900 per person; confirm the current rate with Henann.
+- Ask whether it covers the terminal and environmental fees.
+
+**Option B: Do it yourself (cheaper)**
+1. Take a tricycle or van to Caticlan Jetty Port, about 7–10 minutes and roughly ₱50–150.
+2. At the port, pay the terminal fee (about ₱150) and the environmental fee (about ₱150 for locals, ₱300 for foreigners). Then buy a ferry ticket, roughly ₱50–100.
+3. Take the ferry to Cagban Port, about 10–15 minutes. Then take an e-trike to Station 2.
+
+**Before the trip:** email Henann to book transfers for everyone (9 on Jan 3, and the rest of the group on their own dates). Ask for early check-in or bag storage, and ask for the Jan 7 early-morning return transfer for the 8:05 AM flight.
+
 ## Boracay meal plan (Jan 3–7, group of ~30)
 
 Breakfast is included at Henann. Every other meal is on us.
