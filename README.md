@@ -19,6 +19,22 @@ Travelers (all on the same booking): Ailynn, Christopher, Rhianabigail (Gail)
 - **Baggage (per person):** 2 checked bags, up to 23 kg / 50 lb and 158 cm / 62 in each. 1 carry-on, up to 7 kg / 15 lb and 115 cm / 45 in.
 - Bring a photo ID (passport) to check-in.
 
+### Boracay round trip: Manila ⇄ Caticlan (Philippines AirAsia)
+
+Travelers (9 on one booking): Ailynn, Christopher, Rhian Abigail (Gail), Avijaxyrille, Anniel Ron, Aron Ralph, Josie Grace, Keyverly, Kairon Mathaios (child)
+
+| Flight | From | To | Departs | Arrives | Duration |
+|---|---|---|---|---|---|
+| **Z2 211** | Manila NAIA (MNL), **Terminal 2** | Caticlan–Boracay (MPH) | Sun, Jan 3, 2027 · 7:25 AM | Sun, Jan 3, 2027 · 8:30 AM | 1h 5m |
+| **Z2 233** | Caticlan–Boracay (MPH) | Manila NAIA (MNL), **Terminal 2** | Thu, Jan 7, 2027 · 8:05 AM | Thu, Jan 7, 2027 · 9:10 AM | 1h 5m |
+
+- Status: Confirmed. Economy going out, Economy Promo coming back. Everyone has Zero Change Fee.
+- **Baggage:** everyone gets a 7 kg carry-on. Only **Ailynn, Gail, Anniel Ron and Aron Ralph** have a 20 kg checked bag, on both flights. The other five have carry-on only, so pack for that or add bags before the trip.
+- The outbound flight gets to Caticlan at 8:30 AM, but Henann check-in isn't until 3:00 PM. Plan to store bags or ask for early check-in.
+- The return flight leaves Caticlan at 8:05 AM, so Jan 7 is an early morning. Allow time for the boat back from Boracay to Caticlan.
+- This booking uses NAIA **Terminal 2**. The international flights use Terminal 1 (arrival) and Terminal 3 (departure).
+- Total paid: USD 1,009.92.
+
 ### Return: Manila → Phoenix (STARLUX Airlines, one-way)
 
 Travelers (all on the same booking): Ailynn, Christopher, Rhianabigail (Gail)
