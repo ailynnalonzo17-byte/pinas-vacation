@@ -67,7 +67,7 @@ Breakfast is included at Henann. Every other meal is on us.
 
 | Day | Breakfast | Lunch | Dinner |
 |---|---|---|---|
-| Sun, Jan 3 | ✈ Before the 7:25 AM flight (not at the hotel) | **To plan** (land 8:30 AM, check-in 3 PM) | **To plan** |
+| Sun, Jan 3 | ✈ Before the 7:25 AM flight (not at the hotel) | **To plan: just our 9** (land 8:30 AM, check-in 3 PM) | **To plan** |
 | Mon, Jan 4 | Hotel (free) | **To plan** | **To plan** |
 | Tue, Jan 5 | Hotel (free) | **To plan** | **To plan** |
 | Wed, Jan 6 | Hotel (free) | **To plan** | **To plan** |
@@ -75,5 +75,5 @@ Breakfast is included at Henann. Every other meal is on us.
 
 - **8 group meals to plan:** 4 lunches and 4 dinners.
 - **3–4 free hotel breakfasts:** Jan 4, 5 and 6 for sure. Jan 7 only if you can eat before leaving.
-- **About 240 individual meals** for 30 people (8 × 30).
+- **About 219 individual meals:** 9 for Jan 3 lunch (just our 9), plus 7 meals × 30 people (210).
 - Reserve restaurants for 30 ahead of time, because it's peak holiday season.
