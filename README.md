@@ -60,3 +60,20 @@ Travelers (all on the same booking): Ailynn, Christopher, Rhianabigail (Gail)
 | **Check-in** | Sunday, January 3, 2027 (from 3:00 PM) |
 | **Check-out** | Thursday, January 7, 2027 (until 12:00 PM) |
 | **Nights** | 4 |
+
+## Boracay meal plan (Jan 3–7, group of ~30)
+
+Breakfast is included at Henann. Every other meal is on us.
+
+| Day | Breakfast | Lunch | Dinner |
+|---|---|---|---|
+| Sun, Jan 3 | ✈ Before the 7:25 AM flight (not at the hotel) | **To plan** (land 8:30 AM, check-in 3 PM) | **To plan** |
+| Mon, Jan 4 | Hotel (free) | **To plan** | **To plan** |
+| Tue, Jan 5 | Hotel (free) | **To plan** | **To plan** |
+| Wed, Jan 6 | Hotel (free) | **To plan** | **To plan** |
+| Thu, Jan 7 | Hotel (free), only if you can eat before the early boat. Otherwise ask for packed breakfast | — (back in Manila 9:10 AM) | — |
+
+- **8 group meals to plan:** 4 lunches and 4 dinners.
+- **3–4 free hotel breakfasts:** Jan 4, 5 and 6 for sure. Jan 7 only if you can eat before leaving.
+- **About 240 individual meals** for 30 people (8 × 30).
+- Reserve restaurants for 30 ahead of time, because it's peak holiday season.
